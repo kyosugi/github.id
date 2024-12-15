@@ -1,1 +1,1 @@
-# github.id
+# iki mek njajal
